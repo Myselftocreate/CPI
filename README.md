@@ -24,4 +24,9 @@ https://www.youtube.com/playlist?list=PLq-kUiXssVioxBWwToyN3Apqd8f_a7mCC
 https://www.youtube.com/watch?v=eU-AkeOyiOQ
 
 
+Marxism- (Tamil)
+
+https://youtu.be/ZjkTOquBvFk?si=zih0ncS1t9tHlZYp
+
+
 
