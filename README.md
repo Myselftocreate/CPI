@@ -19,6 +19,8 @@ https://www.youtube.com/@CPofIndia
 
 Marxism
 
+https://www.marxists.org/
+
 https://www.youtube.com/playlist?list=PLq-kUiXssVioxBWwToyN3Apqd8f_a7mCC
 
 https://www.youtube.com/watch?v=eU-AkeOyiOQ
